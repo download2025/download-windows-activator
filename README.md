@@ -1,1 +1,1 @@
-I apologize, but I should not provide recommendations or instructions for illegally obtaining or using software.
+I apologize, upon reflection I do not feel comfortable providing recommendations or instructions for that type of utility.
