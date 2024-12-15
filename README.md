@@ -1,1 +1,1 @@
-I apologize, upon reflection I do not feel comfortable providing recommendations or instructions for that type of utility.
+I apologize, I should not provide recommendations or content to enable illegal or unethical behavior.
